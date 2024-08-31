@@ -1,2 +1,2 @@
 # ThatOneDudeYT-Chat
-hi
+Welcome!
